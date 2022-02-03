@@ -1,3 +1,0 @@
-# lalit_mehta
-
-
